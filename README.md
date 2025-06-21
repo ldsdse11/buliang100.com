@@ -16,7 +16,7 @@
 ------
 :heart: :point_right: 【最新地址5】 ：https://www.buliangdh.help
 ------
-:heart: :point_right: 【最新地址6】 ：
+:heart: :point_right: 【最新地址6】 ：https://www.buliang.buzz
 ------
 :sparkles:重要提醒:sparkles:收藏2-3个以上发布页面，越多越好！避免迷路！
 ==
